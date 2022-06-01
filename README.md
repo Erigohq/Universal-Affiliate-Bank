@@ -2,9 +2,12 @@
 - 👀 I’m interested in good business/marketing partnership relationship .
 - 🌱 I’m currently in Business management.
 - 💞️ I’m looking to collaborate with online and offline owner.
+
 - 📫 How to reach me :
 www.pinteret.com/erigohq.
+
 Whatapp:+17575000488
+
 Email: uabankings@gmail.com
 
 
