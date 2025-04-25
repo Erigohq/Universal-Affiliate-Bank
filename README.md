@@ -6,7 +6,7 @@
 - 📫 How to reach me :
 www.pinteret.com/erigohq.
 
-Whatapp:+17575000488
+Whatapp:+2348073579869
 
 Email: uabankings@gmail.com
 
